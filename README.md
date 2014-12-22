@@ -35,132 +35,140 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The wonderfull discouerie of Elizabeth Savvyer a witch late of Edmonton, her conuiction and condemna
+
+1. The Authors Apologie to the Christian Readers, who wisheth to them all health and happinesse.
+
 #####Body#####
 
-1. Question.
+1. A true declaration of the manner of proceeding against ELIZABETH SAVVYER late of Edmonton Spinster, and the euidence of her Conuiction.
 
-1. Answere.
+1. A true Relation of the confession of Elizabeth Sawyer spinster, after her conuiction of Witchery, taken on Tuesday the 17. day of Aprill, Anno 1621. in the Gaole of Newgate, where she was prisoner, then in the presence and hearing of diuers persons, whose names to verifie the same are here subscribed to this ensuyng confession, made vnto me Henry Good-cole Minister of the word of God, Ordinary and Visiter for the Gaole of Newgate. In Dialogue manner are here expressed the persons that she murthered, and the cattell that she destroyed by the helpe of the Diuell
 
-1. Question.
+    _ Question.
 
-1. Answere.
+    _ Answere.
 
-1. Question.
+    _ Question.
 
-1. Answere.
+    _ Answere.
 
-1. Question.
+    _ Question.
 
-1. Answere.
+    _ Answere.
 
-1. Question.
+    _ Question.
 
-1. Answere.
+    _ Answere.
 
-1. Question.
+    _ Question.
 
-1. Answere.
+    _ Answere.
 
-1. Question.
+    _ Question.
 
-1. Answere.
+    _ Answere.
 
-1. Question.
+    _ Question.
 
-1. Answer.
+    _ Answere.
 
-1. Question.
+    _ Question.
 
-1. Answer.
+    _ Answer.
 
-1. Question.
+    _ Question.
 
-1. Answer.
+    _ Answer.
 
-1. Question.
+    _ Question.
 
-1. Answer.
+    _ Answer.
 
-1. Question.
+    _ Question.
 
-1. Answer.
+    _ Answer.
 
-1. Question.
+    _ Question.
 
-1. Answer.
+    _ Answer.
 
-1. Quest.
+    _ Question.
 
-1. Answ.
+    _ Answer.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Quest.
+    _ Quest.
 
-1. Answ.
+    _ Answ.
 
-1. Answer.
+    _ Quest.
 
-1. Question.
+    _ Answ.
 
-1. Answer.
+1. A Relation what shee said at the place of Execution, which was at Tiborne, on Thursday, the 19. day of Aprill. 1621.
 
-1. Question.
+    _ Answer.
 
-1. Answer.
+    _ Question.
 
-1. Conclusion.
+    _ Answer.
+
+    _ Question.
+
+    _ Answer.
+
+    _ Conclusion.
 
 **Types of content**
 
